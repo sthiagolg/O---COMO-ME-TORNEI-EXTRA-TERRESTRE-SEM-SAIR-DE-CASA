@@ -1,2 +1,2 @@
 PALAVRA REMEMORA FAMÍLIA 
-\nEis o mistério da Fé.
+Eis o mistério da Fé.
